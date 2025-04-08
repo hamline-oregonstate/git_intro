@@ -1,2 +1,1 @@
-Elijah Hamlin 
-25
+Elijah Hamlin
